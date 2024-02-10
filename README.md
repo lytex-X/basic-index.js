@@ -9,4 +9,4 @@ My discord : lytex.4k
 
 Server discord : https://discord.com/invite/dq2GDjrzWK
 
-Add me if you have a question or join discord
+Add me if you have a question or join discord server.
